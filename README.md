@@ -1,0 +1,2 @@
+# oguziks.github.io
+Kişisel
